@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 A recent graduate from University of East London<br>🤝 I’m looking to collaborate with other developers<br>🌱 I’m currently learning everything yet something<br>💬 2024 Goals : Contribute more and learn in public<br>⚡ Fun fact : A different version of you exists in the minds of everyone who knows you. 
+🔭 A recent graduate from University of East London<br>🤝 I’m looking to collaborate with other developers<br>🌱 I’m currently learning everything yet something<br>💬 2026 Goals : Contribute more and learn in public<br>⚡ Fun fact : A different version of you exists in the minds of everyone who knows you. 
 
 
 ## 🌐 Socials:
